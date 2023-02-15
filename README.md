@@ -1,4 +1,5 @@
-# Info-about-DJNW
+### Hello Yall👋🏻
+
 🖌 I am trying to be a artist.
 📮 the way to find me is: DNichols™#5033.
 📝 just a little fun fact I can do roleplays and stuff as long as it's completely appropiate.
