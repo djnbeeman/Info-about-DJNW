@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - ⚒ I work on some mods.
 - 🤝🏻 Collabration will be allowed as long as they make me comfortable in a way.
 - 🔭 I am looking for a composer for all the mods I work on.
+-->
